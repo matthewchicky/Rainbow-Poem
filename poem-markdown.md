@@ -2,20 +2,18 @@
 <hr>
 *<p align="center">
 Today is Earth Day.  
-Which is not Mars,
-I love Earth Day.  
-Purple rain   
-Is not pink   
-Is not orange either  
+Not Mars Day.
+Purple rain
+is present on the mountaintops
+It's not pink   
+It's not orange either  
 Blue is cold   
-Green   
-Indigo   
+Green means money
+Indigo is underappreciated
 Recycle!   
-Unicorn   
-Yellow   
+Yellow is a smelly color  
 Red is hot   
-These are the colors of the rainbow.   
-And the unicorn.   
-Pony   
+These are the colors of the rainbow. 
+And the unicorn.    
 </p>*
 <hr>
